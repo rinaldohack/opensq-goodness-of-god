@@ -1,0 +1,2 @@
+# opensq-goodness-of-god
+ 
